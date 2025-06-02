@@ -1,16 +1,12 @@
-## Hi there 👋
+este es mi perfil les doy la vienvenida es un gusto conocerlos  espero que nos llevemos bien este ciclo escolar
 
-<!--
-**welialo/welialo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🤑​ mis gustos fav:
+🎬​ mi pelicula fav es toy story 3
+👨‍💻​ estoy en el taller programacion
+mi cantante favotita es PLD 🦁
+​⚽mi depote fav es futbol
+🎮 me gusta jugar en consola
+​🎓​es pero graduareme de la univercidad
+🥳​ me encantan las fiestas ​​​​
+🇲🇽​ vivo en el pais de mexico estado de puebla 
+al equipo de fut que apoyo son las poderosisimas aguilas del america el mas gande de mexico 
